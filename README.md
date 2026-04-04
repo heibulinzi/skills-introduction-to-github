@@ -4,7 +4,7 @@
 
 Hey heibulinzi!
 
-Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
+
 welcome to my github!
 Remember, it's self-paced so feel free to take a break! ☕️
 
